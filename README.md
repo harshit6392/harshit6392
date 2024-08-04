@@ -11,7 +11,7 @@
 
 - Need collaboration **For better Learning pace**
 
-- 📫 How to reach me **harshitsharma88811@gmail.com**
+- 📫 How to reach me **hsharma6392@gmail.com**
 
 - ⚡ Fun fact **I love to solve the problems in one sitting.**
 
